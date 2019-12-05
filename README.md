@@ -11,3 +11,9 @@
 - juice/drank
 - chopsticks and hot pot ladle things n shit
 - hot pot stove + don't forget the gas for it
+
+### epicchewy
+- cabbage
+- sliced beef
+- jin ramen
+- portable stove + gas + pot + ladle + chopsticks (better than above monkfish's)
