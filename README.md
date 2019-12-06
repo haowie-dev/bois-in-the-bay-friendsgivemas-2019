@@ -17,3 +17,10 @@
 - sliced beef
 - jin ramen
 - portable stove + gas + pot + ladle + chopsticks (better than above monkfish's)
+
+### martinckong + richardwen01
+- 2 lbs thin sliced lamb
+- 1 lb thin sliced beef short rib
+- mushrooms
+- fishcake
+- gai choy
