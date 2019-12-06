@@ -17,3 +17,8 @@
 - sliced beef
 - jin ramen
 - portable stove + gas + pot + ladle + chopsticks (better than above monkfish's)
+
+## Anchillada
+- my place
+- dank edibles
+- nutrition (?)
