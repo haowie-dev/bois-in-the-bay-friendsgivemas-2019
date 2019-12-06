@@ -17,3 +17,4 @@
 - sliced beef
 - jin ramen
 - portable stove + gas + pot + ladle + chopsticks (better than above monkfish's)
+- get litty
