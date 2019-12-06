@@ -18,6 +18,11 @@
 - jin ramen
 - portable stove + gas + pot + ladle + chopsticks (better than above monkfish's)
 
+## Anchillada
+- my place
+- dank edibles
+- nutrition (?)
+
 ### martinckong + richardwen01
 - 2 lbs thin sliced lamb
 - 1 lb thin sliced beef short rib
